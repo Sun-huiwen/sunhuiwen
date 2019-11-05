@@ -73,7 +73,7 @@ To be published.
 
 >	Henan University
 
->	Key Laboratory of Plant stress
+>	Key Laboratory of Plant Stress
 
 >	Molecular Biology
 
